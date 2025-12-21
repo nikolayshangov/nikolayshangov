@@ -1,2 +1,2 @@
 Nikolay Shangov
-NikolayShangov.com
+nikolayshangov.com
